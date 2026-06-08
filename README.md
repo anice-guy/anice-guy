@@ -10,8 +10,8 @@ im mostly skilled at coding in [Haxe](https://haxe.org/) for friday night funkin
 
 # where to find me ig
 * discord: `a.nice_guy`
-* x the everything app: `@anice_guy14`
+* x the everything app: `@anicer_guy`
   * _no i dont actually call it that_
 
-i have some other socials but atp just ask me privately
+i have some other socials but atp just ask me privately  
 <img width="155" height="181" alt="catto" src="https://github.com/user-attachments/assets/e053e10d-1979-4722-9b07-50509519b0e9" />
