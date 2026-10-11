@@ -10,7 +10,7 @@ im mostly skilled at coding in [Haxe](https://haxe.org/) for friday night funkin
 
 # where to find me ig
 * discord: `a.nice_guy`
-* x the everything app: `@anicer_guy`
+* x the everything app: `@anggar009`
   * _no i dont actually call it that_
 
 i have some other socials but atp just ask me privately  
